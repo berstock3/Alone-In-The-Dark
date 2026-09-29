@@ -221,4 +221,4 @@ Alone in The Dark is offered as a full free version, providing players with all 
 Don't miss out on the horror adventure of a lifetime. **Download Alone in The Dark now and uncover the secrets of Shadow Island!**
 
 ---
-**Last updated:** 2026-09-28 20:52:30 UTC
+**Last updated:** 2026-09-29 00:39:55 UTC
